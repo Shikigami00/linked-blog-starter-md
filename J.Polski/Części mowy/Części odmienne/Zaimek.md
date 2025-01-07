@@ -1,0 +1,4 @@
+- **Definicja:** Zastępuje rzeczownik, przymiotnik, liczebnik lub przysłówek, odpowiada na ich pytania.
+- **Odmiana:** Zależy od rodzaju zastępowanej części mowy.
+- **Przykłady:**
+    - ja, ty, on, tamten, który, twój, nasz, coś, nikt.

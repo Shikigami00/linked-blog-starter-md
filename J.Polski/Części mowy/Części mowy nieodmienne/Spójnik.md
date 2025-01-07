@@ -1,0 +1,3 @@
+- **Definicja:** Łączy wyrazy, zdania lub ich części.
+- **Przykłady:**
+    - i, oraz, lub, ale, jednak, ponieważ, więc.

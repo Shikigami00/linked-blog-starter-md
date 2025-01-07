@@ -1,0 +1,3 @@
+- **Definicja:** Określa czas, miejsce, sposób, cel lub intensywność czynności lub cech, odpowiada na pytania: _jak? gdzie? kiedy? dlaczego? w jaki sposób?_
+- **Przykłady:**
+    - szybko, pięknie, wczoraj, blisko, daleko, tam.

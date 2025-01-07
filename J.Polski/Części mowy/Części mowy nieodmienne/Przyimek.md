@@ -1,0 +1,3 @@
+- **Definicja:** Łączy wyrazy w zdaniu i określa zależności między nimi.
+- **Przykłady:**
+    - w, na, pod, z, nad, za, do, po.

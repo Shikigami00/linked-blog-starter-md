@@ -1,0 +1,4 @@
+- **Definicja:** Oznacza liczbę, ilość, kolejność lub wielokrotność, odpowiada na pytania: _ile? który z kolei?_
+- **Odmiana:** Przez przypadki, czasem liczby i rodzaje.
+- **Przykłady:**
+    - _jeden, dwa, trzeci, sto, tysiąc, pół._

@@ -1,0 +1,3 @@
+- **Definicja:** Nadaje zdaniu określony wydźwięk, wzmacnia lub zmienia jego znaczenie.
+- **Przykłady:**
+    - by, niech, czy, nie, tylko, właśnie, nawet.

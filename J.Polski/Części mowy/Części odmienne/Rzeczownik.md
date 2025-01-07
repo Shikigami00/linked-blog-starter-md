@@ -1,0 +1,4 @@
+- **Definicja:** Oznacza osoby, zwierzęta, rzeczy, miejsca, zjawiska lub pojęcia abstrakcyjne.
+- **Odmiana:** Przez przypadki i liczby.
+- **Przykłady:**
+    - człowiek, kot, stół, miłość, rzeka, szkoła.

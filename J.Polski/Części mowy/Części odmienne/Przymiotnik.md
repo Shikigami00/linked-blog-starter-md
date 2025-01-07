@@ -1,0 +1,4 @@
+- **Definicja:** Określa cechy osób, rzeczy, zjawisk lub pojęć, odpowiada na pytania: _jaki? jaka? jakie? czyj? czyja? czyje? który? która? które?_
+- **Odmiana:** Przez przypadki, liczby i rodzaje.
+- **Przykłady:**
+    - piękny, czerwony, duży, szybki, mądry.
