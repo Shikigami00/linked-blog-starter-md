@@ -1,0 +1,25 @@
+- l**ost her footing** – straciła równowagę
+- **was so stricken with grief** – był tak dotknięty smutkiem
+- **that's the gist of it** – to jest najważniejsze
+- **a whole different level altogether** – zupełnie inny poziom
+- **I'll wind up saying it again** – powtórzę to jeszcze raz
+- **piled with rubble** – zasypane gruzem
+- **nigh impossible** – prawie niemożliwe
+- **march on** – iść **dalej**
+- **bust them down** – rozwalić ich
+- **haphazardly-strewn** – chaotycznie porozrzucane
+- **so on lark** – tak w skowronkach
+- **everything hinged on** – wszystko zależało od
+- **spurned by fate** – odrzucony przez los
+- **wailing mournfully** – zawodząc żałośnie
+- **painstakingly slow** – boleśnie powolny
+- **erratic behavior** – nieregularne zachowanie
+- **exquisite beauty** – znakomite piękno
+- **inconceivable odds** – niewyobrażalne szanse
+- **fluctuating emotions** – zmienne emocje
+- **appease their wrath** – uspokoić ich gniew
+- **circumvent the rules** – obejść zasady
+- **inadvertently caused** – nieumyślnie spowodowany
+- **dilapidated house** – zniszczony dom
+- **pretty well versed** – całkiem dobrze zorientowany
+- **in no time flat** – w mgnieniu oka

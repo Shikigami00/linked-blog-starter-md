@@ -1,0 +1,37 @@
+- **facility** – obiekt, zakład, placówka
+- **strait jacket** – kaftan bezpieczeństwa
+- **excess** – nadmiar
+- **habit** – nawyk
+- **study guide** – przewodnik, podręcznik
+- **house sitter** – opiekunka domowa
+- **savage** – dzikus
+- **retort** – riposta
+- **footing** – równowaga
+- **grief** – smutek
+- **streak** – passa / zapędy
+- **success** – sukces
+- **level** – poziom
+- **zeal** – zapał
+- **fondness** – uczucie / przywiązanie / życzliwość
+- **indifference** – obojętność
+- **heritage** – dziedzictwo
+- **amiability** – życzliwość
+- **timidness** – nieśmiałość
+- **rubble** – gruz
+- **abduction** – uprowadzenie
+- **tendons** – ścięgna
+- **booty** – łup
+- **trepidation** – trwoga
+- **cranial** – czaszka/żuchwa
+- **predicament** – kłopot
+- **disdain** – pogarda
+- **attendance** – frekwencja
+- **enumeration** – wyliczenie
+- **panache** – polot
+- **wailing** – zawodzenie
+- **thee** – cię
+- **crotch** – krocze
+- **swelling** – opuchlizna
+- **hinge** – zawias (lub zależność, np. "wszystko zależało od")
+- **spurned** – odrzucenie
+- **beleaguered** – oblężenie/osaczenie

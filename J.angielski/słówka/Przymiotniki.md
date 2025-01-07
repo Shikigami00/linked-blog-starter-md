@@ -1,0 +1,36 @@
+- **former** – były, dawny
+- **accommodating** – dostosowujący się
+- **overturned** – unieważniony, uchylony, obalony
+- **short-tempered** – porywczy
+- **pitiable** – żałosny
+- **timid** – nieśmiały, płochliwy, bojaźliwy
+- **savage** – dziki, agresywny
+- **prominent** – wybitny, ważny
+- **docile** – potulny, uległy
+- **brief** – krótki, zwięzły
+- **stricken** – dotknięty
+- **pale** – blada
+- **rousing** – porywczy / podniecający / porywający
+- **amusing** – zabawny
+- **glum** – ponury
+- **bonkers** – szalony
+- **unjaded** – niepohamowany
+- **vengeful** – mściwy
+- **inescapable** – nieunikniony
+- **snumerou** – liczny
+- **nigh impossible** – prawie niemożliwy
+- **painstakingly** – skrupulatny
+- **splattered** – rozpryskany
+- **sprawled** – rozłożony
+- **dangling** – zwisający
+- **blunt** – tępy / szczery
+- **fluctuating** – zmienny
+- **excruciating** – rozdzierający / bolesny
+- **haphazardly-strewn** – chaotycznie porozrzucany
+- **jutting** – wystający
+- **exquisite** – znakomity
+- **inconceivable** – niewyobrażalny
+- **inadvertent** – **nieumyślny**
+- **peerless** – niezrównany
+- **dilapidated** – zniszczony
+- **beleaguered** – oblężony

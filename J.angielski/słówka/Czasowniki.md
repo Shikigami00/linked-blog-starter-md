@@ -1,0 +1,23 @@
+- **overturn** – przewrócić (coś), znieść (coś), podważyć (coś)
+- **accommodate** – pomieścić, przyjąć, zakwaterować, zmieścić, spełnić, gościć, zaspokoić, uwzględnić
+- **enroll** – zapisać się, zarejestrować się
+- **bear** – nosić (np. bear that in mind – mieć to na uwadze)
+- **drop by** – wpaść (np. zamierzam wpaść)
+- **complain** – narzekać
+- **tease** (**teasing**) – dokuczać
+- **bewilder** – oszołomić
+- **brief** – odprawiać (kogoś)
+- **tumbled** – przewrócić się
+- **torn down** – zburzyć / rozebrać
+- **flub** – pomylić się
+- **wind up** – skończyć
+- **saying** – mówić
+- **confined** – ograniczyć, zamknąć
+- **differs** – różnić się
+- **march on** – iść dalej
+- **bust them down** – rozwalić ich
+- **convey** – przekazywać
+- **swelling up** – puchnąć
+- **circumvent** – omijać
+- **cease** – zaprzestać
+- **appease** – uspokajać, zadowalać

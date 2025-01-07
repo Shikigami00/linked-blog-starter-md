@@ -1,0 +1,13 @@
+- **formerly** – dawniej, wcześniej, poprzednio, kiedyś
+- **merely** – tylko, ledwie
+- **though** – choć, chociaż
+- **briefly** – krótko
+- **thoroughly** – dokładnie
+- **altogether** – łącznie
+- **thus** – tak więc / zatem
+-  **inherently** – z natury
+- **erratically** – nieregularnie
+- **painstalkingly** – skrupulatnie
+- **regrettably** – niestety
+- **inadvertently** – nieumyślnie / przez przypadek
+- **mournfully** – żałośnie
